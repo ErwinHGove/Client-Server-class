@@ -1,3 +1,8 @@
+###Please see untitled word document for full Readme with pictures 
+
+
+
+
 Grazioso Salvare
 Erwin Gove
 
